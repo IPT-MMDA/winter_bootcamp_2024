@@ -8,6 +8,7 @@ https://youtu.be/Ix4bjkFZBTw
 
 Як вигравати хакатони, як спілкуватися з ШІ
 https://www.canva.com/design/DAF417WnE-s/IiPjlrLxvR0uEymHWoyMzA/view?utm_content=DAF417WnE-s&utm_campaign=designshare&utm_medium=link&utm_source=editor#3
+
 https://youtu.be/zQlY6buA1c8
 
 Переможці Black Sea Science,хакатону NasaSpaceApp, всеукраїнського конкурсу ШІ
@@ -30,6 +31,7 @@ https://youtu.be/GqYIrLhh_G0
 
 Інноваційні ідеї та інтелектуальні системи для генерації тексту, картинок тощо
 https://www.canva.com/design/DAF5CpPQhJM/28YiNjt1NkmCIOX76FDO9Q/edit?utm_content=DAF5CpPQhJM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
 https://youtu.be/nD52P9DvcO8
 
 Старт кар'єри в IT
